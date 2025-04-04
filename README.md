@@ -1,1 +1,1 @@
-# lambdi_session_April_4_2025
+# lambda_session_April_4_2025
